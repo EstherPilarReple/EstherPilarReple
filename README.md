@@ -21,7 +21,7 @@ Seja bem-vindo(a) ao meu perfil! Sou apaixonada por design e código, combinando
 ---
 
 ### 📫 Vamos nos conectar?
-- 💼 [Seu LinkedIn](www.linkedin.com/in/estherbotelho)
+- 💼 [Seu LinkedIn](https://www.linkedin.com/in/estherbotelho)
 - ✉️ [Seu E-mail](mailto:pilarreple@outlook.com)
 
 ---
